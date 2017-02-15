@@ -1,1 +1,0 @@
-# oozcan.github.io
